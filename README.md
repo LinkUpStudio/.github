@@ -61,4 +61,4 @@ GitHub: [Linkup Studio](https://github.com/LinkUpStudio)
 
 Website: www.linkupst.com
 
-*Transform your ideas into reality with Linkup Services - Where Innovation Meets Excellence!* 🚀✨
+*Transform your ideas into reality with Linkup Studio - Where Innovation Meets Excellence!* 🚀✨
